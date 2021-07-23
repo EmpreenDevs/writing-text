@@ -4,6 +4,6 @@
 ## Result: 
 ![](https://raw.githubusercontent.com/EmpreenDevs/writing-text/main/gif.gif)
 
-- Subscribe in [my Channel](https://www.youtube.com/channel/UCkVrAGL7PCsoPTra-KqgUPw)
+- Subscribe in [my Channel](https://www.youtube.com/channel/UCkVrAGL7PCsoPTra-KqgUPw?sub_confirmation=1)
 - Click on like button
 - ✨Thanks✨
